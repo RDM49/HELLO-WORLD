@@ -4,4 +4,4 @@ i have just created my beanch
 
 
 
-I have made chnages in the description.
+I have made changes in the description.
